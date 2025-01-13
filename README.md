@@ -5,3 +5,6 @@ Resources for Mastering the GATE Syllabus
 To prepare for GATE successfully, it is essential to use the right resources aligned with the syllabus. Books, online courses, and mock tests can be incredibly helpful. For an organised list of preparation materials based on the GATE syllabus 2025, check out this blog post: GATE Syllabus 2025: Weightage and Subject-Wise Preparation Tips.
 Resources for Mastering the GATE Syllabus
 To prepare for GATE successfully, it is essential to use the right resources aligned with the syllabus. Books, online courses, and mock tests can be incredibly helpful. For an organised list of preparation materials based on the GATE syllabus 2025, check out this blog post:[ GATE Syllabus 2025: Weightage and Subject-Wise Preparation Tips.](https://www.tmu.ac.in/blog/gate-syllabus-2025-weightage-and-subject-wise-preparation-tips)
+ How to Tackle Changes in the GATE Syllabus 2025
+Adapting to changes in the GATE syllabus is crucial for success. Keep yourself updated with official announcements, compare previous years’ syllabi, and focus on newly added topics. Being informed ensures efficient preparation.
+Get a detailed breakdown of the syllabus and weightage in this blog:[ GATE Syllabus 2025: Weightage and Subject-Wise Preparation Tips.](https://www.tmu.ac.in/blog/gate-syllabus-2025-weightage-and-subject-wise-preparation-tips)
