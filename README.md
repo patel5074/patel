@@ -8,3 +8,5 @@ To prepare for GATE successfully, it is essential to use the right resources ali
  How to Tackle Changes in the GATE Syllabus 2025
 Adapting to changes in the GATE syllabus is crucial for success. Keep yourself updated with official announcements, compare previous years’ syllabi, and focus on newly added topics. Being informed ensures efficient preparation.
 Get a detailed breakdown of the syllabus and weightage in this blog:[ GATE Syllabus 2025: Weightage and Subject-Wise Preparation Tips.](https://www.tmu.ac.in/blog/gate-syllabus-2025-weightage-and-subject-wise-preparation-tips)
+How to Check UBSE 2025 Results
+After the UBSE 2025 exams are concluded, students will eagerly await their results. The board typically publishes results online, allowing students to check their performance using their roll number. It's important for students to keep their details handy to avoid any delays. For more details on the results, syllabus, and upcoming exams, visit the official [UBSE 2025 Overview, Syllabus, Result, and Exams page.](https://www.tmu.ac.in/blog/ubse-board-2025-overview-syllabus-result-and-exams)
