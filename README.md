@@ -16,3 +16,8 @@ If you're preparing for the CMAT 2025, you need to stay updated with exam notifi
 Benefits of Early Preparation for UP Board Exams
 
 Starting early with UP Board exam preparation offers several benefits, including better retention, reduced last-minute stress, and improved conceptual understanding. Breaking down the syllabus into manageable portions and studying regularly ensures steady progress. For subject-wise preparation tips for Class 12th, [visit this article](https://www.tmu.ac.in/blog/up-board-class-12th--subject-wise-preparation-tips).
+Best Books to Ace JEE Mains 2025"
+
+Choosing the right books is essential for JEE Mains preparation. For Physics, HC Verma’s "Concepts of Physics" is a must-read. In Chemistry, JD Lee for Inorganic and OP Tandon for Physical Chemistry are excellent choices. For Mathematics, RD Sharma and Cengage publications provide comprehensive practice. Additionally, practising previous years' question papers helps in understanding the exam pattern.
+
+For more resource recommendations, check out [JEE Mains 2025 Preparation Tips and Resources.](https://www.tmu.ac.in/blog/jee-mains-2025-preparation-tips-and-resources)
