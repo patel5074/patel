@@ -21,3 +21,7 @@ Best Books to Ace JEE Mains 2025"
 Choosing the right books is essential for JEE Mains preparation. For Physics, HC Verma’s "Concepts of Physics" is a must-read. In Chemistry, JD Lee for Inorganic and OP Tandon for Physical Chemistry are excellent choices. For Mathematics, RD Sharma and Cengage publications provide comprehensive practice. Additionally, practising previous years' question papers helps in understanding the exam pattern.
 
 For more resource recommendations, check out [JEE Mains 2025 Preparation Tips and Resources.](https://www.tmu.ac.in/blog/jee-mains-2025-preparation-tips-and-resources)
+Forensic Science: A Perfect Blend of Science and Technology
+[Forensic science](https://www.tmu.ac.in/blog/what-is-forensic-science-an-overview-of-the-course-and-career-paths) combines advanced scientific techniques and technology to solve crimes. With innovations like DNA profiling, digital forensics, and advanced fingerprint analysis, this field continues to evolve. If you're intrigued by the intersection of science, technology, and justice, learn more here.
+Why Pursue a Degree in Forensic Science?
+Pursuing a degree in forensic science opens doors to numerous opportunities in crime laboratories, law enforcement agencies, and the judiciary. It provides hands-on training in evidence analysis and crime-solving techniques. To explore a detailed overview of [forensic science courses](https://www.tmu.ac.in/blog/what-is-forensic-science-an-overview-of-the-course-and-career-paths), visit here.
