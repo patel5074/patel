@@ -87,3 +87,8 @@ Biodiversity conservation
 Environmental awareness programs
 
 These efforts not only contribute to environmental protection but also provide students with practical exposure to sustainable practices.
+Fine Arts Programs: Nurturing Creative Expression
+Artistic education requires nurturing environments and expert guidance. Among the top universities in India, Teerthanker Mahaveer University offers comprehensive fine arts education that develops artistic talent.
+TMU's Fine Arts program features specialized studios for painting, sculpture, and digital art. Students explore various mediums and techniques while developing their artistic style.
+The curriculum combines traditional art forms with contemporary practices. Regular art exhibitions and workshops provide exposure to various artistic perspectives. Faculty members include practicing artists and art professionals.
+Students participate in art exhibitions and cultural events, building their artistic portfolios and professional networks.
